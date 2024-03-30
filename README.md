@@ -12,3 +12,7 @@
 
   U/UX design:
   https://www.figma.com/file/ptlHnp00HYnrv7HopczTPX/ThriveUp?type=design&node-id=2550-30285&mode=design&t=DYJXe0AhshkJIb5b-0
+
+  Video Link: 
+  https://youtu.be/_dncLWsQASI
+  
